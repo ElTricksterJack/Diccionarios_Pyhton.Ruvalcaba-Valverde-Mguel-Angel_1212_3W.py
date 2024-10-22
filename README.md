@@ -16,3 +16,7 @@
 ![image](https://github.com/user-attachments/assets/b9f50384-d065-43b7-bdcb-c868bdbab3ad)
 ![image](https://github.com/user-attachments/assets/da5ecc62-cf08-470f-b761-8117af757394)
 ![image](https://github.com/user-attachments/assets/550e0dca-baa0-4fc7-9d87-d18853415a8b)
+
+Nota:Profe ya bimos mucho de dicionario?
+porfavor
+![image](https://github.com/user-attachments/assets/70fcb70e-d790-46d5-8fa9-60a62fa247a8)
